@@ -1,4 +1,4 @@
-## **Semyon Belosheev**
+## Semyon Belosheev
 
 ## My contacts: 
 *E-mail(aspirantbelosheev@tut.by)*, 
