@@ -2,7 +2,6 @@
 
 ## My contacts: 
 *E-mail(aspirantbelosheev@tut.by)*, 
-*Mobile*: *+375(33)661-61-78* 
 
 ## Name: Vladimir Karaulin
 
