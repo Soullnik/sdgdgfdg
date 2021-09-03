@@ -16,20 +16,6 @@ I comprehend everything new and develop.
 languages, frameworks, methodologies, version control systems and development tools, under study. I work well in a team, I have an idea of splitting tasks into    
 subtasks and completing them on time.
 
-## Let's be honest, 
-I don't know how to do it yet, but I will definitely fill this gap.
-
-## From *2012* to *2016* 
-he took part in the development and implementation of software for heat treatment.
-
-## Gave advice and made 
-changes (unfortunately I didn't write the code).
-
-## Technical scientific degree.
-Master of Engineering and Technology. English courses 2English, grade B1.
-
-## Confident English at B1 level.
-And I continue to raise my level.
 
 
 ## Name: Vladimir Karaulin
