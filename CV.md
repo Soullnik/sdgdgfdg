@@ -4,10 +4,6 @@
 *E-mail(aspirantbelosheev@tut.by)*, 
 *Mobile*: *+375(33)661-61-78* 
 
-## For more than ten years, he led a group of more than *25 people*. 
-
-
-
 ## Name: Vladimir Karaulin
 
 ## Contact info: 
