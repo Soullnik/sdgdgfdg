@@ -1,4 +1,3 @@
-## Name: Semyon Belosheev
 ## Name: Vladimir Karaulin
 
 ## Contact info: 
