@@ -1,4 +1,4 @@
-# 1. **Semyon Belosheev**
+## 1. **Semyon Belosheev**
 ## 2. My contacts: *E-mail(aspirantbelosheev@tut.by)*, *Mobile*: *+375(33)661-61-78*   
 ## 3. For more than ten years, he led a group of more than *25 people*. 
 ## Now I started to study Git. 
