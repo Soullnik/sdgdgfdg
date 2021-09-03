@@ -6,16 +6,6 @@
 
 ## For more than ten years, he led a group of more than *25 people*. 
 
-## Now I started to study Git. 
-I want to master Javasckript within a year and join the team.
-
-## Very quickly 
-I comprehend everything new and develop.
-
-## Programming 
-languages, frameworks, methodologies, version control systems and development tools, under study. I work well in a team, I have an idea of splitting tasks into    
-subtasks and completing them on time.
-
 
 
 ## Name: Vladimir Karaulin
