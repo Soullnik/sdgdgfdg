@@ -1,7 +1,7 @@
-## Semyon Belosheev
+## Name: Semyon Belosheev
 
 ## My contacts: 
-*E-mail(aspirantbelosheev@tut.by)*, 
+*E-mail(aspirantbelosheev@tut.by)*
 
 ## Name: Vladimir Karaulin
 
